@@ -1,0 +1,1 @@
+Aplikace se souhrnem kritérii pro zvládnutí písemných částí z angličtiny a češtiny
